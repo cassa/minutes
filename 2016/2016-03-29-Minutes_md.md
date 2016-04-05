@@ -12,6 +12,7 @@ Attendance
 	+ Adam Nygate - Employment Advisor
 * Student representatives 
     + Dan - 2nd year representative
+
 Absentees
 ---------
 * Executive committee 
