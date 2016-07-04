@@ -1,4 +1,4 @@
-CASSA Annual General Meeting 2002/03/15
+SCISSA Annual General Meeting 2002/03/15
 =======================================
 
 Meeting started 11:15pm
